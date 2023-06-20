@@ -6,5 +6,9 @@
 🫀 1A
 
 
+🖤 você pode entrar em contato comigo 
+
+fernanda.escobar@escola.pr.gov.br
+
 
 
